@@ -7,5 +7,5 @@
 
 - 📫 How to reach me **zparacha82@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1A6NoB6VSzyuOtUbTGIUuG-CImUZeMWKY/view](https://drive.google.com/file/d/1A6NoB6VSzyuOtUbTGIUuG-CImUZeMWKY/view)
+- 📄 Know about my experiences [resume.pdf](https://drive.google.com/file/d/1QLpg2lFg0RdqxEIss6famu7NOev-2N3R/view)
 
